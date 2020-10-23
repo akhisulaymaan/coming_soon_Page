@@ -1,3 +1,3 @@
 # coming_soon_Page 
 
-![alt text](http://url/to/img.png)
+![alt text](http://20201023_175336.jpg)
